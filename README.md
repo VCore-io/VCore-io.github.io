@@ -1,3 +1,4 @@
+<meta name="google-site-verification" content="TRETHUpghSf3mujl-UPPArwXwby_7gKORAwkNH9IyoM" />
 #VCore
 Игрок VCore - Активный, Топовый Русскоязычный Спидранер на сайте Speedrun.com специализирующийся на модификации/моде на оригинальную игру Granny (От Dvloper) Granny: Legacy (от автора OmGi, актуальная версия 1.8.8). Игрок имеет множетсво топовых мест как и в коротких специфичных категориях (Grandparents%, Open The Melon%, Pets%) так и в длинных затяжных высококонкурирующих категориях (ve1.8, PC, Set Seed, Any% Glitchless, Normal, No
 Grandpa, Door Ending, ve1.8, PC, Preset, Any% Glitchless, Easy, No Grandpa, Door Ending и тд). Игрок созда свой аккаунт относительно недавно - 1 месяц назад.
